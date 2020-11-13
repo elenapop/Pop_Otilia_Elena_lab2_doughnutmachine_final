@@ -1,0 +1,2 @@
+# Pop_Otilia_Elena_lab2_doughnutmachine_final
+varianta finala a primului proiect
